@@ -1,4 +1,4 @@
-Ejemplos de mis posteos en medium
----------------------------------
+Ejemplos de mis articulos publicados en medium
+----------------------------------------------
 
 Medium: https://medium.com/@andreslm 
